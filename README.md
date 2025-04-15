@@ -10,6 +10,6 @@
 
 💡 Planning to start some cool projects soon – stay tuned
 
-📬 Reach me anywhere – Gmail:Alexilikobaxtadze88@gmail.com Discord: alex_iliko
+📬 Reach me anywhere – Gmail: Alexilikobaxtadze88@gmail.com | Discord: alex_iliko
 
 😄 Pronouns: he/him
