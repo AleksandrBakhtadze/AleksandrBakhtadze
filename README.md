@@ -9,7 +9,3 @@
 👥 Sometimes I work solo, but lately I've been teaming up with awesome people
 
 💡 Planning to start some cool projects soon – stay tuned
-
-📬 Reach me anywhere – Gmail: Alexilikobaxtadze88@gmail.com | Discord: alex_iliko
-
-😄 Pronouns: he/him
